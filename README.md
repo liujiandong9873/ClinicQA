@@ -1,2 +1,2 @@
 # ClinicQA
-The dataset will be uploaded after the article is accepted.
+Please contact me at my emaill address and i will send back the link.
